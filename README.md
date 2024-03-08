@@ -11,7 +11,7 @@
 
 # Thanks for checking my page
 
-Check out:
+Give a follow:
 - https://x.com/kuber_112
 - https://x.com/sylviak112
 - https://x.com/amelinek1123
