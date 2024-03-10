@@ -12,5 +12,5 @@
 
 Give a follow:
 - https://x.com/kuber_112
-- https://x.com/sylviak112
-- https://x.com/amelinek1123
+- 🤖 https://x.com/sylviak112
+- 🤖 https://x.com/amelinek1123
