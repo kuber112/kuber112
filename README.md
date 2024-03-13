@@ -1,7 +1,5 @@
 # Here is what I am interested to do for many years:
 
-
-
 1. AI
 2. Robotics
 3. Cybernetics
